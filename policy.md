@@ -1,6 +1,6 @@
-## Progress Policy Summary (For External Sharing, Aug 2025)
+# Progress Policy Summary
 
-### Progress Policy Summary
+## Progress Policy Summary (For External Sharing, Aug 2025)
 
 This document is a short summary of Progress’ key policies for the 2029 GE and all subsidiary elections prior. It is not a comprehensive policy index but rather collects our most critical priorities for the sake of making it easy to understand the party’s identity and fundamental direction.
 
