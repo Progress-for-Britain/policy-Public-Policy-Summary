@@ -109,7 +109,7 @@ Goal: rebuild local financial mutuals.
 
 ### Beyond the flagship — Economy
 
-- E9. Space policy: back a national flagship human‑spaceflight project and UK space industry participation; modernise rules with allies.
+ - E9. Space policy: back a national flagship human‑spaceflight project and UK space industry participation; modernise rules with allies to enable more private enterprise in space.
 - E10. Student debt relief: end interest on existing student loan repayments to help people move forward faster.
 
 ---
